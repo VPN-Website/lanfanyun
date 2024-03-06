@@ -4,7 +4,7 @@
 ## 蓝帆云官网
 **蓝帆云官网最新地址**：[https://lanfancloud.com](https://go.51tz.cc/lanfan)
 
-[![飞机云机场.jpg](https://s2.loli.net/2024/02/23/plBxnmfL7FY5orv.jpg)](https://go.51tz.cc/lanfan)
+[![蓝帆云.png](https://s2.loli.net/2024/03/06/YKjol7kfc2QLR3h.png)](https://go.51tz.cc/lanfan)
 
 ## 蓝帆云机场特点
 * 新晋稳定便宜机场梯子不存在老牌机场超卖问题，**用户少不拥挤**，带宽速度体验佳；
